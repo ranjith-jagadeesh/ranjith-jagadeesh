@@ -4,7 +4,7 @@
 
 ### Glad to see you here! &nbsp;
 
-Currently working at [Foodhub](https://www.linkedin.com/products/foodhubuk-foodhub-for-business/)
+Currently working at [Annalise.Ai](https://www.linkedin.com/company/annalise-ai/)
 
 ### 🛠 &nbsp;Tech Stack
 
